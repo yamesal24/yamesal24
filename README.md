@@ -6,7 +6,10 @@
 
 - thank you for having and I'll be in your care. =)
 
-- stay safe, take card, have a great day ahead. God bless.
+- stay safe, take care, have a great and fabulous day ahead. God bless.
+
+
+- Every second, every minute, every day - it's about choices. People can influence your choices, but at the end of the day, you are the one making that choice. LIFE is about CHOICES and YOU are the one making it. 
 
 <!---
 yamesal24/yamesal24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
